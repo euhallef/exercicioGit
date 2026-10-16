@@ -1,0 +1,1 @@
+se voce esta lendo, certamente sabe ler.
